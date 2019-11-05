@@ -70,12 +70,6 @@ To be published.
 
 >	**Li-Juan Yan**
 
->	Post-Doctoral Scientist in Micheal Bevan laboratory
-
->	Cell and Developmental Department, John Innes Centre
-
->	Norwich NR4 7UH, United Kingdom
-
 >	E-mail: <763057367@qq.com>
 
 ---------------------------------------------------------------------
